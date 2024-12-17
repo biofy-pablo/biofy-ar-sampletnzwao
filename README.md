@@ -1,1 +1,0 @@
-# biofy-ar-sampletnzwao
